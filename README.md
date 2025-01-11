@@ -1,2 +1,2 @@
-# emmapedurand.github.io
-My portfolio
+# emma.maryanna.github.io
+2025 Portfolio
